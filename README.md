@@ -1,6 +1,6 @@
 ## Hi There! I'm Nahid
 
-### I'm a Developer, and Web Designer!!
+### I'm a Student, Developer, and Web Designer!
 
 #### Connect With Me:
 
