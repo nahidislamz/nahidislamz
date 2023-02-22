@@ -1,4 +1,4 @@
-## Hi There! I'm Nahid
+## Hi I am Nahid! A Data Analyst with Python programming and web developing skills. I specialise in analysing large datasets and presenting insights through visualizations 
 
 #### Connect With Me:
 
